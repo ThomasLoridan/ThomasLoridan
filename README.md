@@ -1,4 +1,4 @@
-## Hi there 👋 Looking to know me? Let me tell you more about me:
+## Hi there 👋 Looking to know me? Let me tell you more about myself:
 &nbsp;
 
 # I turn complex systems into business outcomes — at the intersection of strategy and engineering. ⚙️📊
